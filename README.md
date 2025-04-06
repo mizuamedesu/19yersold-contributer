@@ -18,3 +18,5 @@
 * TakutoMuramatsu https://x.com/Takuto_620
 * fly　https://x.com/fly_1217
 
+![](itiran.jpg)
+![](pasuta.jpg)
