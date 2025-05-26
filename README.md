@@ -4,10 +4,11 @@
 * 𝙣𝙖𝙤𝙩𝙖 https://x.com/naohanpen_coins
 * 間瀬bb https://x.com/bb_mase2
 * やー https://x.com/reversed_R
+* letasuu https://x.com/letasuu1
 
 予定
 
-* letasuu https://x.com/letasuu1
+
 * しまえなが https://x.com/shimaenaga_ITF
 * みーしゃ https://x.com/Mikhail_Garland
 * えらる https://x.com/Eranica1_
