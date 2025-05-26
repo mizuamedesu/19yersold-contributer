@@ -1,12 +1,12 @@
 # 19yersold-contributer
 私の19歳の誕生日プレゼントコントリビューター一覧
 * ベア君 https://x.com/bear_wash9663
+* 𝙣𝙖𝙤𝙩𝙖 https://x.com/naohanpen_coins
 * 間瀬bb https://x.com/bb_mase2
 * やー https://x.com/reversed_R
 
 予定
 
-* 𝙣𝙖𝙤𝙩𝙖 https://x.com/naohanpen_coins
 * letasuu https://x.com/letasuu1
 * しまえなが https://x.com/shimaenaga_ITF
 * みーしゃ https://x.com/Mikhail_Garland
