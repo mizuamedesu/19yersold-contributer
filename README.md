@@ -2,10 +2,9 @@
 私の19歳の誕生日プレゼントコントリビューター一覧
 
 * ベア君 https://x.com/bear_wash9663
+* 間瀬bb https://x.com/bb_mase2
 
 予定
-
-* 間瀬bb https://x.com/bb_mase2
 * やー https://x.com/reversed_R
 * 𝙣𝙖𝙤𝙩𝙖 https://x.com/naohanpen_coins
 * letasuu https://x.com/letasuu1
